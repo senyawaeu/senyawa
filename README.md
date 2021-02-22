@@ -1,0 +1,2 @@
+# senyawa
+a different idea 
